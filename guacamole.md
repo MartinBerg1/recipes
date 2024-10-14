@@ -2,7 +2,7 @@
 ## Ingredients
 * Avacado
 * Salt
-* Lemon
+* Lime
 ## Instructions
 
 
